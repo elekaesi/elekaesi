@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @elekaesi
-- 👀 I’m interested in Computers Network
-- 🌱 I’m currently learning Web Development and Gpon
+- 👀 I’m interested in Basketball, soccer, music and games.
+- 🌱 I’m currently learning Web Development and Gpon.
 - 💞️ I’m looking to collaborate on (I really don't no yet haha)
 - 📫 How to reach me (my instagram: @elekaesi)
 
